@@ -1,1 +1,0 @@
-# Skillfactory_project_six
